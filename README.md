@@ -6,21 +6,61 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=rk-black" alt="rk-black" /></a> </p>
 
-- 🔭 I’m currently working to **Termux Cracking💥**
+- 🔭 I’m currently working to 
 
-- 🌱 I’m currently learning **Inter😎**
 
-- 👯 I’m looking to collaborate on **😼**
+**Termux Cracking💥**
 
-- 🤝 I’m looking for help with **Kolizar Jaan😘**
 
-- 👨‍💻 All of my projects are available at [https://github.com/Rk-Black/RK-OK](https://github.com/Rk-Black/RK-OK)
 
-- 💬 Ask me about **Nothing🥱**
+- 🌱 I’m currently learning 
 
-- 📫 How to reach me **rktrickspoint24@gmail.com**
 
-- ⚡ Fun fact **I Think I am so Funny😹**
+**Inter😎**
+
+
+
+- 👯 I’m looking to collaborate on 
+
+
+**😼**
+
+
+
+- 🤝 I’m looking for help with 
+
+
+**Kolizar Jaan😘**
+
+
+
+- 👨‍💻 All of my projects are available at 
+
+
+[https://github.com/Rk-Black/RK-OK](https://github.com/Rk-Black/RK-OK)
+
+
+
+- 💬 Ask me about 
+
+
+**Nothing🥱**
+
+
+
+- 📫 How to reach me
+
+
+**sadiajamanrk24@gmail.com**
+
+
+
+- ⚡ Fun fact 
+
+
+**I Think I am so Funny😹**
+
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
